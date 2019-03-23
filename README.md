@@ -1,1 +1,0 @@
-# Binjour tout le monde ! :-)
